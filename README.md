@@ -1,1 +1,1 @@
-# Historical-place-of-india
+# Historical-places-of-india
